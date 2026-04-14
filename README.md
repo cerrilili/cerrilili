@@ -1,5 +1,5 @@
 # links
-### https://lilis.atabook.org/
+### https://superdupersmelly.atabook.org/
 ### (strawpage soon)
 
 (image soon)
